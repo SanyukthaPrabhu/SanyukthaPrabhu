@@ -1,5 +1,5 @@
 👋 Hi, I’m Sanyuktha
- 🌱 currently learning - #rd sem AIML student
+ 🌱 currently learning - 3rd sem AIML student
   I’m looking to collaborate !!
  📫 Connect with me
      Linkedin: https://www.linkedin.com/in/sanyuktha-prabhu-a5a257297/
